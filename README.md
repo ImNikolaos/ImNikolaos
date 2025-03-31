@@ -1,4 +1,4 @@
-![My Background]()
+![My Background](https://github.com/ImNikolaos/ImNikolaos/blob/main/background.jpg)
 
 # Hi, I'm Nikolaos Polytseris!
 
