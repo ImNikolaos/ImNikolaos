@@ -50,5 +50,5 @@
 Let’s connect and discuss how I can bring value to your IT team!
 
 [LinkedIn](https://www.linkedin.com/in/nikolaos-polytseris-6baa56359/)  
-[Email](nikolaos.polytseris@gmail.com) *(update with his professional email)*
+[Email](nikolaos.polytseris@gmail.com)
 
