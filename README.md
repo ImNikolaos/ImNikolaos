@@ -1,3 +1,5 @@
+![My Background]()
+
 # Hi, I'm Nikolaos Polytseris!
 
 💻 **Aspiring IT Support Specialist**  
